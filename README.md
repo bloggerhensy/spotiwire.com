@@ -1,1 +1,1 @@
-# spotiwire.com
+Ready to elevate your music experience? Join [Spotiwire](https://spotiwire.com/) and embark on a journey of sonic discovery. Whether you’re a casual listener or a dedicated music connoisseur, we’ve got something special for you.
